@@ -1,1 +1,1 @@
-# KOC42
+# KOC42 IS CLASS.
